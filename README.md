@@ -1,2 +1,0 @@
-# Gymtemplate.github.io
- 
